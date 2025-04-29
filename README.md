@@ -1,1 +1,1 @@
-hi im Qquaded im a roblox dev and u can contact me in d86i#8167 discord bye!!
+Hello, welcome to my profile! Im a game developer on roblox that specializes in game creation and lua programming.
